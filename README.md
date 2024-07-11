@@ -5,7 +5,9 @@ I use he/they/it/paw/cute
 
 ![](https://files.catbox.moe/1b4kif.gif)
 
-I have a gf named juniper and i love her SM!!!
+I have a gf named juniper and i love her SM!!
+
+Transmasculine Libramasculine Lesbian + A real life catboy!! (NOT A MAN. MASCULINE ≠ MAN)
 
 Autistic system + npd, bpd, adhd ♡
 # MEDIAS I COSPLAY FROM
