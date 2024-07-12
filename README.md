@@ -7,6 +7,8 @@ I use he/they/it/paw/cute
 
 I have a gf named juniper and i love her SM!!
 
+Shady and Bobble hat fictionkin
+
 Transmasculine Libramasculine Lesbian + A real life catboy!! (NOT A MAN. MASCULINE ≠ MAN)
 
 Autistic system + npd, bpd, adhd ♡
@@ -28,5 +30,7 @@ if you are hateful towards me or someone close to me I will not hesitate to conf
 Im usually with my girlfriend juniper, dont make that a reason to not say hi though!
 
 whispering is usually the best thing to grab my attention as im usually offtab or talking to others
+
+I tend to hyperfocus on others shadys due to being a shady fictionkin, i can get stressed but please dont get upset if im like that! ill usually be back to normal afterwards
 
 that should be it!! just dont be a ass or a weirdo and you're good :)
