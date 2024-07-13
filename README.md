@@ -31,6 +31,6 @@ Im usually with my girlfriend juniper, dont make that a reason to not say hi tho
 
 whispering is usually the best thing to grab my attention as im usually offtab or talking to others
 
-I tend to hyperfocus on others shadys due to being a shady fictionkin, i can get stressed but please dont get upset if im like that! ill usually be back to normal afterwards
+I tend to hyperfocus on others shadys due to being a shady fictionkin, i can get stressed but please dont get upset if im like that! ill usually be back to normal afterwards and apologize for any weird / and or mean reactions :)
 
 that should be it!! just dont be a ass or a weirdo and you're good :)
