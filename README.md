@@ -33,4 +33,6 @@ whispering is usually the best thing to grab my attention as im usually offtab o
 
 I tend to hyperfocus on others shadys due to being a shady fictionkin, i can get stressed but please dont get upset if im like that! ill usually be back to normal afterwards and apologize for any weird / and or mean reactions :)
 
+also please make sure to leave smth on my strawpage! i love reading or looking at whatever is sent
+
 that should be it!! just dont be a ass or a weirdo and you're good :)
