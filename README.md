@@ -1,9 +1,9 @@
 # README
-Hello!! My name is Shady / Rex (use shady if we arent friends!)
+Hello!! My name is Shady / Rex / Lucifer (use shady or Lucifer if we arent friends!)
 
 I use he/they/it/paw/cute
 
-![](https://files.catbox.moe/1b4kif.gif)
+![](https://files.catbox.moe/bnvcq3.gif)
 
 I have a gf named juniper and i love her SM!!
 
@@ -20,6 +20,8 @@ Splatoon/Coroika
 Phighting
 
 Fallout sometimes
+
+Animation meme youtubers but mostly sashley
 
 # BYI
 
