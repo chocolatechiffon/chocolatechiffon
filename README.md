@@ -3,7 +3,7 @@ Hello!! My name is Shady / Rex / Lucifer (use shady or Lucifer if we arent frien
 
 I use he/they/it/paw/cute
 
-![](https://media1.tenor.com/m/kDdqj2A10pQAAAAd/get-real.gif)
+![](https://files.catbox.moe/m45rt2.gif)
 
 I have a gf named juniper and i love her SM!!
 
