@@ -38,3 +38,5 @@ I tend to hyperfocus on others shadys due to being a shady fictionkin, i can get
 also please make sure to leave smth on my strawpage! i love reading or looking at whatever is sent
 
 that should be it!! just dont be a ass or a weirdo and you're good :)
+
+team past btw!
