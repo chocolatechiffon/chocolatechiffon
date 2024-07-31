@@ -1,7 +1,7 @@
 # README
 Hello!! My name is Shady / Rex / Lucifer (use shady or Lucifer if we arent friends or close!)
 
-I use he/they/it/paw/cute
+I use he/they/it/paw/she
 
 ![](https://files.catbox.moe/avxn3a.webp)
 
@@ -9,7 +9,7 @@ I have a gf named juniper and i love her SM!!
 
 Shady fictionkin
 
-Transmasculine Libramasculine Lesbian + A real life catgirl!! (NOT A MAN. MASCULINE ≠ MAN)
+Transmasculine Libramasculine Fem-Spike Lesbian + A real life catgirl!! (NOT A MAN. MASCULINE ≠ MAN)
 
 Autistic system + npd, bpd, adhd ♡
 # MEDIAS I COSPLAY FROM
