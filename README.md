@@ -13,7 +13,7 @@ Transmasculine Libramasculine Fem-Spike Lesbian + A real life catgirl!! (NOT A M
 
 CATGIRL!!/SRS
 
-Autistic system + npd, bpd, adhd ♡
+Autistic DID system + npd, bpd, adhd ♡
 # MEDIAS I COSPLAY FROM
 Nekopara
 
