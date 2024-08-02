@@ -41,8 +41,6 @@ I tend to hyperfocus on others shadys due to being a shady fictionkin, i can get
 
 also please make sure to leave smth on my strawpage! i love reading or looking at whatever is sent
 
-if you send me "callouts" over petty drama im gonna assume you are a loser ! because instead of actually resolving your little petty drama you decide to drag it out and turn into this big thing! get a life instead of whining about someone on ponytown, i beg you
-
 that should be it!! just dont be a ass or a weirdo and you're good :)
 
 team past btw! :3
